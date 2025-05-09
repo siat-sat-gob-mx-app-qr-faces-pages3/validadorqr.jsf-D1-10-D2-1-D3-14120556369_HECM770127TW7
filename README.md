@@ -1,0 +1,1 @@
+# validadorqr.jsf-D1-10-D2-1-D3-14120556369_HECM770127TW7
